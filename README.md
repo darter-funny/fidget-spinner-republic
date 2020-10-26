@@ -1,2 +1,1 @@
-# fidget-spinner-republic
-For all the fidget spinneteers out there
+i am back b\*\*\*hes
